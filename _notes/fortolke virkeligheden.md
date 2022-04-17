@@ -1,0 +1,1 @@
+Virkeligheden er åben for fortolkning. Det må være fortolkning 

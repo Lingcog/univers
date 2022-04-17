@@ -1,0 +1,1 @@
+Alle specifikke menneskelige psykologiske processer bliver bragt i stand af psykologiske redskaber som sprog, tegn og symboler. [[Lantolf (2011)]]

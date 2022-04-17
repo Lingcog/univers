@@ -1,0 +1,1 @@
+Yasuhiro Shirai (2019), *Connectionism and Second Language Acquisition*, New York, NY : Routledge.
